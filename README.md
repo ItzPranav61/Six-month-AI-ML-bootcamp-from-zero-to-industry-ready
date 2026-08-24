@@ -1,0 +1,1 @@
+# Six-month-AI-ML-bootcamp-from-zero-to-industry-ready
